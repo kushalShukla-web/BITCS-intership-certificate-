@@ -1,1 +1,2 @@
-# BITCS-intership-certificate-[Internship Certificate- Kushagra.pdf](https://github.com/kushalShukla-web/BITCS-intership-certificate-/files/9380079/Internship.Certificate-.Kushagra.pdf)
+# BITCS-intership-certificate-[Internship Certificate- Kushagra.pdf]
+![Internship-Certificate-Kushagra](https://user-images.githubusercontent.com/85934954/185568495-17c02ab3-4230-4dc6-beb8-cf4a3f32b79a.jpg)
